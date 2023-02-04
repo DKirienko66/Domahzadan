@@ -1,3 +1,2 @@
-ew0[fnew[\
-pompwmdoomm
-wepi pv
+Kirienko Denis 
+Domashnee zadanie
